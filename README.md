@@ -1,0 +1,2 @@
+# gururajl.github.io
+blogs
